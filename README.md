@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Zenisty
+- 👋 Hi, I’m @Evy
 - 👀 I’m interested in Software engineer
 - 🌱 I’m currently learning new stuff
 - 💞️ I’m looking to collaborate on discord.
