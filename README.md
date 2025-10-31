@@ -2,7 +2,7 @@
 - 👀 I’m interested in Software engineer
 - 🌱 I’m currently learning new stuff
 - 💞️ I’m looking to collaborate on discord.
-- 📫 How to reach me on discord or email discord:.drkurl email:aka2000aki@gmail.com
+- 📫 How to reach me on discord or email discord:evyrl_ email:aka2000aki@gmail.com
 - 😄 Pronouns: He/him
 - ⚡ Fun fact: none
 
